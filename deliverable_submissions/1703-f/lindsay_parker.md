@@ -12,7 +12,7 @@
    * Outcome (i.e., did you get a response? If not, what is your follow-up plan? Did you meet? When? What was the result?)
 
       * Received responses (after one follow-up note) in both cases
-         * Lunch with David Whitaker, great conversation around jobs & careers but unlikely we'll get-together regularly
+         * Lunch with David Whitaker, great conversation around jobs & careers but unlikely we'll get together regularly
          * Lunch with Emily Freeman scheduled for 6/6 to discuss industry, etc.
 
    * How do you feel like this relationship will benefit you in your longterm professional development?
